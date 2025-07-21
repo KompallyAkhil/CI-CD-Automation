@@ -8,3 +8,7 @@ It tickled, but Lily didn't dare brush it away.  Its miniature body pulsed with 
 
 
 <!-- Generated on 2025-07-21T17:34:08.049878 -->
+A warmth spread through her palms, then a tingling sensation that traveled up her arms.  The beetle's light intensified, bathing her hands in an ethereal glow.  Suddenly, she understood; this wasn't just any beetle.
+
+
+<!-- Generated on 2025-07-21T17:39:06.183548 -->
