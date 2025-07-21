@@ -12,3 +12,7 @@ A warmth spread through her palms, then a tingling sensation that traveled up he
 
 
 <!-- Generated on 2025-07-21T17:39:06.183548 -->
+It was a Key, a living conduit to a realm unseen, and the tingling was the unlocking of a hidden power within her.  The iridescent wings shimmered, then dissolved into motes of light that swirled around her, leaving behind only a faint, sweet scent of honeysuckle.
+
+
+<!-- Generated on 2025-07-21T17:44:05.729009 -->
