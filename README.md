@@ -56,3 +56,7 @@ Lily, with the feline close behind, cautiously entered the passage.  The air gre
 
 
 <!-- Generated on 2025-08-14T19:27:13.611661 -->
+The humming intensified as they descended, the passage opening into a vast cavern lit by bioluminescent fungi.  In the center, a colossal crystal pulsed with a soft, rhythmic light, its surface etched with constellations Lily recognized from her visions.  This was the heart of the city, the source of its power.
+
+
+<!-- Generated on 2025-08-14T19:29:17.601913 -->
