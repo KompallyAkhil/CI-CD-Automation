@@ -112,3 +112,7 @@ The shadow lunged, claws extended, but Lily was ready.  With a cry that echoed t
 
 
 <!-- Generated on 2025-08-27T14:20:03.624123 -->
+Crystalline shards flew as Lily parried the shadow's blows, the feline leaping and weaving, distracting the beast with swift, agile movements.  The cavern echoed with the clang of steel and the creature's enraged roars, a desperate struggle between light and encroaching darkness.
+
+
+<!-- Generated on 2025-08-27T14:25:03.454526 -->
