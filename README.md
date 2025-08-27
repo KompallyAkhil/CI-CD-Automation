@@ -64,3 +64,7 @@ A wave of energy washed over Lily as she gazed upon the crystal, a feeling of ho
 
 
 <!-- Generated on 2025-08-14T19:34:05.000864 -->
+It seemed to resonate with the power within her, a connection echoing the tingling she’d felt when the beetle transformed.  The crystal pulsed faster, its light intensifying, bathing the cavern in an otherworldly glow.  Lily knew, instinctively, that this was only the beginning of her incredible journey.
+
+
+<!-- Generated on 2025-08-27T13:14:05.949218 -->
