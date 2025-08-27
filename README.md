@@ -100,3 +100,7 @@ The path led them through a series of breathtaking caverns, each more wondrous t
 
 
 <!-- Generated on 2025-08-27T13:55:03.743385 -->
+The air crackled with anticipation, the scent of ozone sharp against the sweeter floral notes.  A deep, guttural growl echoed through the caverns, a prelude to the confrontation that awaited them.
+
+
+<!-- Generated on 2025-08-27T14:00:03.792490 -->
